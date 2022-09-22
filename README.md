@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Anita Karki
+- 👀 I’m interested in reading , learning 
+- 🌱 I’m currently learning something new
+- 💞️ I’m looking to collaborate on resarch
+- 📫 How to reach me anitaakarkee41@gmail.com
